@@ -27,6 +27,6 @@ find me on :
 
    twitter : DevDp430 
     
-   reddit : vikaspatelp3 
+   reddit : vikaspatelp83 
     
    linkedin : vikaspatelp83
