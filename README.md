@@ -24,6 +24,9 @@ Vikas Patel : <a href="https://www.youtube.com/channel/UCIEgr8sclYAwuyV_n8ITPXw?
 
 
 find me on :
-    twitter : DevDp430 
-    reddit : vikaspatelp3 
-    linkedin : vikaspatelp83
+
+   twitter : DevDp430 
+    
+   reddit : vikaspatelp3 
+    
+   linkedin : vikaspatelp83
